@@ -1,1 +1,1 @@
-I did learn this fron ONLINE 
+I did learn this from ONLINE 
